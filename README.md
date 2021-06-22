@@ -14,40 +14,14 @@ This document does not constitute any investment advice and does not advise to p
 
 “In the laws of the Republic of Turkey, shopping with digital assets within the borders of Turkey is prohibited.”
 
-Table of Contents:
-
-Summary
-
-Introduction
-
-Why Businessman Technology INC.?
-
-Developer Team
-
-Our Services
-
-businessmancoin.com Digital Asset Page
-
-BSST Token
-
-About BSST Token
-Its Technology
-Economy of Token
-Company Structure
-Aid Purposes
-Summary
 
 Businessman Technology INC. (BSST Token) is a technology company registered in Turkey with a joint stock company structure. Businessman Technology INC. was established to list digital asset trading platforms and services on global-based and decentralized exchange markets. Businessman BSST Token does not trade its own digital assets within its own structure.
 
- 
 
 Within this prospectus, it is provided detailed information about the service token BSST created by Businessman Technology INC. BSST Token is an integral part and power of the blockchain and crypto assets ecosystem created by Businessman Technology INC.
 
- 
 
 Introduction
-
- 
 
 Businessman Technology INC. BSST Token started its activities with the launch of businessmancoin.com in 2021 and it is one of Turkey’s digital asset and digital technology platforms.
 
